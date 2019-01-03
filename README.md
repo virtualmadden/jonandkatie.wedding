@@ -1,1 +1,1 @@
-# jonandkatie.wedding
+# Jon and Katie's Wedding Site
